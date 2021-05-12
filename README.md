@@ -1,3 +1,3 @@
 Prework-IOS-2021
 
-GIF: http://recordit.co/fRutLzqqdS
+GIF: http://g.recordit.co/fRutLzqqdS.gif
